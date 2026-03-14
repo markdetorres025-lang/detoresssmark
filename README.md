@@ -1,0 +1,2 @@
+# detoresssmark
+promotional
